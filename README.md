@@ -1,2 +1,2 @@
-# Cuckiettes
+# Cucks
 We like to watch...
